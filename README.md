@@ -215,7 +215,7 @@ Together, small actions can create a significant impact on the planet.
 
 ## 👨‍💻 Developed By
 
-Sree Sanjay Atmakuri
+  Neeha 
 
 EcoTrack – Smart Sustainability Challenge
 
